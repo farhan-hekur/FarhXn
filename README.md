@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FarhXn
+- 👀 I’m interested in Hacking And Cybersec
+- 🌱 I’m currently learning Hacking
